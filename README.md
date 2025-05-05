@@ -1,2 +1,4 @@
-# NoClick
-NoClick!NoClick!NoClick!NoClick!NoClickNoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClickNoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!NoClick!
+# سلام
+نباید اینو باز میکردی
+میدونی چلا؟
+چون من **چیش** دارممممممم اااااا
